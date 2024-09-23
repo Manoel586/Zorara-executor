@@ -1,2 +1,2 @@
 # Zorara-executor
-Zoraraversion2.7.zip
+https://wearedevs.net/d/Zorara
