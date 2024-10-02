@@ -1,2 +1,2 @@
 # Zorara-executor
- https://discord.gg/BFv9vpru
+https://discord.gg/RYfsaDE2
